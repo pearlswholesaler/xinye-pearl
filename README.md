@@ -1,5 +1,5 @@
 ![Pearl Ring](https://github.com/pearlswholesaler/xinye-pearl/blob/main/pearlring.webp?raw=true)
-# 🦪 Xinye Pearl — Wholesale Freshwater Pearl Manufacturer
+# Xinye Pearl — Wholesale Freshwater Pearl Manufacturer
 
 > **Direct from farm. No middlemen. 30–50% off standard wholesale prices.**
 
