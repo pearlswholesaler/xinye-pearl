@@ -1,4 +1,4 @@
-# 🦪 Xinye Pearl — Wholesale Freshwater Pearl Manufacturer
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/2f3bc88d-8c16-4b00-9273-496e42377142" /># 🦪 Xinye Pearl — Wholesale Freshwater Pearl Manufacturer
 
 > **Direct from farm. No middlemen. 30–50% off standard wholesale prices.**
 
@@ -8,6 +8,9 @@
 [![Instagram](https://img.shields.io/badge/Instagram-xinye__jewelry-E4405F?style=for-the-badge&logo=instagram)](https://www.instagram.com/xinye_jewelry/)
 
 ---
+https://github.com/pearlswholesaler/xinye-pearl/blob/main/pearlearring.webp?raw=true
+https://github.com/pearlswholesaler/xinye-pearl/blob/main/pearlring.webp?raw=true
+https://github.com/pearlswholesaler/xinye-pearl/blob/main/IMG_3488.webp?raw=true
 
 ## 🏭 About Us
 
