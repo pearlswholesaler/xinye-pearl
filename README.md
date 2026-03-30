@@ -2,11 +2,6 @@
 
 > **Direct from farm. No middlemen. 30–50% off standard wholesale prices.**
 
-[![Website](https://img.shields.io/badge/Website-pearlswholesaler.com-blue?style=for-the-badge)](https://www.pearlswholesaler.com)
-[![WhatsApp](https://img.shields.io/badge/WhatsApp-%2B86%2018961235232-25D366?style=for-the-badge&logo=whatsapp)](https://api.whatsapp.com/send?phone=8618961235232)
-[![Email](https://img.shields.io/badge/Email-info%40pearlswholesaler.com-D14836?style=for-the-badge&logo=gmail)](mailto:info@pearlswholesaler.com)
-[![Instagram](https://img.shields.io/badge/Instagram-xinye__jewelry-E4405F?style=for-the-badge&logo=instagram)](https://www.instagram.com/xinye_jewelry/)
-
 ---
 
 ## 🏭 About Us
