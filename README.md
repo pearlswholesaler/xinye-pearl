@@ -9,18 +9,6 @@
 
 ---
 
-
-
-https://github.com/pearlswholesaler/xinye-pearl/blob/main/pearlearring.webp?raw=true
-
-
-
-https://github.com/pearlswholesaler/xinye-pearl/blob/main/pearlring.webp?raw=true
-
-
-
-https://github.com/pearlswholesaler/xinye-pearl/blob/main/IMG_3488.webp?raw=true
-
 ## 🏭 About Us
 
 **CHANGZHOU XINYE PEARL CRAFTS FACTORY** — established in **2005**, located in Changzhou, Jiangsu, China.
@@ -30,6 +18,10 @@ We are a direct pearl manufacturer and wholesale supplier specializing in **fres
 - 📍 No. 510, Daqiaotou Chaoyang, Hengshanqiao Town, Changzhou, Jiangsu, China
 - 🕐 Est. 2005 — 20+ years of pearl manufacturing experience
 - 🌍 Serving customers globally with fast international shipping
+  
+https://github.com/pearlswholesaler/xinye-pearl/blob/main/pearlearring.webp?raw=true
+https://github.com/pearlswholesaler/xinye-pearl/blob/main/pearlring.webp?raw=true
+https://github.com/pearlswholesaler/xinye-pearl/blob/main/IMG_3488.webp?raw=true
 
 ---
 
