@@ -8,8 +8,17 @@
 [![Instagram](https://img.shields.io/badge/Instagram-xinye__jewelry-E4405F?style=for-the-badge&logo=instagram)](https://www.instagram.com/xinye_jewelry/)
 
 ---
+
+
+
 https://github.com/pearlswholesaler/xinye-pearl/blob/main/pearlearring.webp?raw=true
+
+
+
 https://github.com/pearlswholesaler/xinye-pearl/blob/main/pearlring.webp?raw=true
+
+
+
 https://github.com/pearlswholesaler/xinye-pearl/blob/main/IMG_3488.webp?raw=true
 
 ## 🏭 About Us
