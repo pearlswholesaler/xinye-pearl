@@ -105,4 +105,5 @@ We provide free resources to help retailers and designers grow their business:
 ---
 
 © 2026 Changzhou Xinye Pearl Crafts Factory. All rights reserved.
-https://github.com/pearlswholesaler/xinye-pearl/blob/main/IMG_3488.webp?raw=true
+
+![Xinye Pearl Products](https://raw.githubusercontent.com/pearlswholesaler/xinye-pearl/main/IMG_3488.webp)
